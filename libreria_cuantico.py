@@ -1,5 +1,0 @@
-
-
-
-# Experimento de las canicas:
-
